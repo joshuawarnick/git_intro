@@ -1,1 +1,2 @@
 Joshua Warnick
+warnickj@oregonstate.edu
